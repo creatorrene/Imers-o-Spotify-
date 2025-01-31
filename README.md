@@ -1,1 +1,1 @@
-# Imers-o-Spotify-
+# Não perca seu Tempo olhando isso, n vai sair do jeito q vc quer.
